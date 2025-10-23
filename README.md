@@ -13,4 +13,4 @@ Loyihani ishga tushirish uchun:
 
 ## ✨ Muallif
 **Lazizbek**  
-GitHub: [@username](https://github.com/Lazizbekborotov-Boop)
+GitHub: [@Profil](https://github.com/Lazizbekborotov-Boop)
